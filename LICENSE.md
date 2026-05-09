@@ -1,4 +1,4 @@
-
+Experience bedwars like never before with new bedwars Scripts, the #1 Script. Includes no cooldown and undetectable for unbeatable performance.
 
 
 
